@@ -1,1 +1,1 @@
-nks for coming
+thanks for coming
